@@ -3,5 +3,5 @@
 - 🌱 I’m currently learning Naruto
 - 💞️ I’m looking to collaborate on RockStar games
 - 📫 How to reach me Pizza
-- 😄 Pronouns: What is that?
+- 😄 Pronouns: Mine/craft?
 - ⚡ Fun fact: Bora bill
